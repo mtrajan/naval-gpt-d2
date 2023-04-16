@@ -179,7 +179,7 @@ Thanks to [Naval Ravikant](https://twitter.com/naval) for publicizing his though
 
 ## Contact
 
-If you have any questions, feel free to reach out to me on [Twitter](https://twitter.com/mckaywrigley)!
+If you have any questions, feel free to reach out to me on [Twitter](https://twitter.com/mtrajan)!
 
 ## Notes
 
